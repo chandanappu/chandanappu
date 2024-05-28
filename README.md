@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @chandanappu
-- 👀 photography,videography,wed development
+- 👀 wed development,photography
 - 🌱 wed development
 - 💞️ if u r also learning above listed skills u can mail me ,so we can learn togather
   
